@@ -32,7 +32,7 @@ Sou curioso por natureza e estou sempre em busca de novos aprendizados. Atualmen
 ## 📫 Contato
 
 [![LinkedIn]linkedin.com/in/fernando-de-souza-santos-consultortecnicopl)  
-📧 fernandosouza62557@email.com
+📧 fernandosouza62557@gmail.com
 
 ---
 
